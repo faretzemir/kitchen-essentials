@@ -1,5 +1,4 @@
-# Log Information
-Essential Kitchen Necessities
+# Essential Kitchen Necessities
 
 | Kitchen Items | Notes | Suggested Prices |
 |:---|:---|:---:|
