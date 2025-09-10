@@ -25,8 +25,19 @@
 | Electric Kettle | If you don't have a cuckoo or coway or whatever, this is what you will use to make hot drinks. If you have to boil water using a pot everytime you want to make tea, you will hate yourself. Can check Mr DIY for this. I'm not too sure the price though. | RM40-80? | 
 | Steel pot | For soups and bulk cooking. Usually you can get away with just using the saucepan, but sometimes you might need to cook a lot more than just like 2-3 portions of Maggi. This is what that is for. | RM20-80 |
 | Cuckoo or Coway water filter | I would **HIGHLY RECOMMEND** getting one of these because it's literally a gamechanger. You no need to boil water using kettle to drink clean water or lug heavy mineral water bottles to your apartment. Generally you can get these for like RM45++ a month. Just get the rental, no need to buy. Comes with free maintenance usually. | RM45++/month |
+| Airtight container | You will want one of these for rice. | RM10-15 | 
+| Food Clips | If you don't have these, you will need to tie stuff using the packaging or use rubber bands. Ew. Still can but yikes. I just use the IKEA ones. Daiso and Mr. DIY also have, but **IKEA is the OG.**| RM5-10 per pack | 
+| Used cooking oil container (steel) | It's not needed, but if you don't have one, you have to discard your oil, and **YOU CANNOT AND SHOULD NOT THROW OIL IN THE SINK!!! YOU WILL CLOG YOUR PIPES!!!** If you don't have one of these, Daiso sells an oil solidifying tablet that can solidify the oil and then you can throw it in the garbage bin. Using one of these, you can reuse the oil, but don't reuse it if it's already black. | RM10-15 | 
 
 # Essential Pantry Items
+#### Note: For these pantry items, get the cheapest ones. Brand names are generally not worth unless you really want to treat yourself. Even then the taste is about the same. Except for kicap manis, Kecap Bango is THE GOAT.
+| Pantry Items | Notes | Suggested Prices |
+|:---|:---|:---:|
+| Rice | Just get the cheapest one. Personally I buy in bulk 5kg, but if you can't lift that alone, they also sell 2kg bags. | RM10-25 per bag |
+| Cooking Oil | Just get 1kg/1L bottles and then when finished just buy more. Personally, we have one bottle of frying oil and one bottle of canola oil (healthier for sauteeing stuff). The frying oil goes back into the used oil container so that we don't have to buy more (wasting money that you can use to gamble on Pokemon Cards) | RM7 (frying) RM12 (canola) | 
+| Kicap | Make sure to get one kicap masin and one kicap manis. These will be used to add salt and umami to rice so you don't have to eat it bland. | RM5-10/bottle | 
+| Oyster Sauce | Less salt, more umami. Basically natural MSG, essential for Chinese / Malay cooking. | RM5-10 per bottle | 
+| Salt | I usually buy one grinder for salt, then I refill it with this brand called **Salt Sense**. They sell sea salt / pink salt for bulk and cheap. I buy a refill of this like once every 6 months. | RM10-15 (Grinder) RM2-3 (Salt Sense) | 
 
 
 
