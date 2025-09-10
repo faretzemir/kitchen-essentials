@@ -23,6 +23,8 @@
 | Kitchen Items | Notes | Suggested Prices |
 |:---|:---|:---:|
 | Electric Kettle | If you don't have a cuckoo or coway or whatever, this is what you will use to make hot drinks. If you have to boil water using a pot everytime you want to make tea, you will hate yourself. Can check Mr DIY for this. I'm not too sure the price though. | RM40-80? | 
+| Blender | Having one allows you to unlock different modes of cooking that you just can't get without one of these. Nice for soups and sauces cause everything is gone. Mine is a Phillips one, but I think you can get cheaper around. | RM50-200 |
+| Microwave | Again, not needed, but your life will be so much better with one. Even we don't have one, but I want one, but no space. Just get a reputable brand. They're generally pretty cheap for a basic one. | RM150-300 |
 | Steel pot | For soups and bulk cooking. Usually you can get away with just using the saucepan, but sometimes you might need to cook a lot more than just like 2-3 portions of Maggi. This is what that is for. | RM20-80 |
 | Cuckoo or Coway water filter | I would **HIGHLY RECOMMEND** getting one of these because it's literally a gamechanger. You no need to boil water using kettle to drink clean water or lug heavy mineral water bottles to your apartment. Generally you can get these for like RM45++ a month. Just get the rental, no need to buy. Comes with free maintenance usually. | RM45++/month |
 | Airtight container | You will want one of these for rice. | RM10-15 | 
@@ -39,6 +41,8 @@
 | Oyster Sauce | Less salt, more umami. Basically natural MSG, essential for Chinese / Malay cooking. | RM5-10 per bottle | 
 | Salt | I usually buy one grinder for salt, then I refill it with this brand called **Salt Sense**. They sell sea salt / pink salt for bulk and cheap. I buy a refill of this like once every 6 months. | RM10-15 (Grinder) RM2-3 (Salt Sense) | 
 | Pepper | I buy a grinder, like the salt, then just get the cheapest black peppercorn refill bag I can find and refill it with that. | RM10-15 (grinder) RM5-6 (black peppercorns) | 
+| Sugar (Gula Prai) | There are a few types. For cooking in general, I prefer to get Castor Sugar cause it's easier to dissolve. No need to get coarse sugar or icing sugar. | RM2-3/bag | 
+| Chilli Powder / Flakes | I usually have both, just to spice things up. You can also buy dried chillies and then blend them up (requires blender) also it tends to make mace and your lungs will hurt when you inhale the air around your blender. | 
 
 
 
