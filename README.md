@@ -38,6 +38,8 @@
 | Kicap | Make sure to get one kicap masin and one kicap manis. These will be used to add salt and umami to rice so you don't have to eat it bland. | RM5-10/bottle | 
 | Oyster Sauce | Less salt, more umami. Basically natural MSG, essential for Chinese / Malay cooking. | RM5-10 per bottle | 
 | Salt | I usually buy one grinder for salt, then I refill it with this brand called **Salt Sense**. They sell sea salt / pink salt for bulk and cheap. I buy a refill of this like once every 6 months. | RM10-15 (Grinder) RM2-3 (Salt Sense) | 
+| Pepper | I buy a grinder, like the salt, then just get the cheapest black peppercorn refill bag I can find and refill it with that. | RM10-15 (grinder) RM5-6 (black peppercorns) | 
+
 
 
 
